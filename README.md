@@ -1,2 +1,3 @@
 Is snapshot good?(사진 잘 나왔니?)
-god my eyes closed sad sad.(젠장 눈 감았잖아 ㅠㅠ.)
+God my eyes closed sad sad.(젠장 눈 감았잖아 ㅠㅠ.)
+-> when you write God, first letter always has to be capital letter.
